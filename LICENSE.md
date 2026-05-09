@@ -1,4 +1,4 @@
-
+advanced Irina for macOS Automation | menu-bar-customization + app-uninstaller is the best Irina for macOS automation, featuring menu-bar-customization and app-uninstaller. Safe,
 
 
 
